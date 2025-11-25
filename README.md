@@ -21,3 +21,4 @@ Whether we are producing commercial campaigns, documenting events, creating prod
 Deliver excellence. Build unforgettable brands. Capture visuals that speak.
 
 Let Focus Imaging Ltd bring your vision to life—one frame, one story, one brand at a time.
+Contact us on +254 111 465 462
